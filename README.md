@@ -1,7 +1,1 @@
-Weed cola 😎😎😎😎
-
-Bruh im sleepy as heck
-
-Let me sleep
-
-Bruh rel
+Idk what 2 put here 
